@@ -87,7 +87,7 @@ Aspiring Data Analyst | Power BI | Advanced Excel
 https://www.linkedin.com/in/suneel-kumar-5545a1436/
 
 
-📧 Email: suneel8810@gmail.com
+📧 Email: suneel.kr8810@gmail.com
 
 
 
